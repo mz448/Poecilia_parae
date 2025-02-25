@@ -1,1 +1,2 @@
-# Poecilia_parae
+# Poecilia_parae Illustration
+[Poecilia_parae](https://figshare.com/account/articles/28478429?file=52583816) © 2025 by [Maximiliano Zuluaga-Forero](https://orcid.org/my-orcid?orcid=0000-0001-8795-2044) is licensed under [CC BY-NC 4.0 ![](https://chooser-beta.creativecommons.org/img/cc-logo.f0ab4ebe.svg)![](https://chooser-beta.creativecommons.org/img/cc-by.21b728bb.svg)![](https://chooser-beta.creativecommons.org/img/cc-nc.218f18fc.svg)](https://creativecommons.org/licenses/by-nc/4.0/?ref=chooser-v1)
